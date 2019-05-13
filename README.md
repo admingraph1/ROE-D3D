@@ -2,6 +2,7 @@
 Ring of Elysium Hack with aimbot / esp / chams
 
 https://imgur.com/a/zWnj3GI
+
 Contact: https://www.facebook.com/GeographygraphsXyz
 
 -BOX (ok) LINE (ok) AIMBOT (OK) DISTANCE (need to improve) BOX ALIGNMENT (Need to Repair) CHAMS (Stops Working)-
