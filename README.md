@@ -1,5 +1,4 @@
 # ROE-D3DXZ
-https://imgur.com/2AbyVw4
 Contact: https://www.facebook.com/GeographygraphsXyz
 
 -BOX (ok) LINE (ok) AIMBOT (OK) DISTANCE (need to improve) BOX ALIGNMENT (Need to Repair) CHAMS (Stops Working)-
